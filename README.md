@@ -23,7 +23,7 @@
 ---
 
 ## 📅 Availability
-- Available from **November 2025** for a **4–6 month internship (M1)**  
+- Available from **November 2025** for a **2-4 month internship (M1)**  
 - Open to **apprenticeship (M2)** starting in 2026  
 
 ---
